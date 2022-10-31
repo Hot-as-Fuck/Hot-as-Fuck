@@ -51,7 +51,7 @@
                          
                          
                          
-## $$\textcolor{red}{\text{ The 🔥 Hottest }}$$
+## $$\textcolor{red}{\text{ The Hottest }}$$ 🔥
 
 
 
