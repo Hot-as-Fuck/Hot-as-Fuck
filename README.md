@@ -1,6 +1,9 @@
 # $$\textcolor{red}{\text{ Hi, what's up? }}$$
 
 
+<img src="https://count.getloli.com/get/@hot-as-fuck?theme=asoul"/>
+
+
 ### $$\textcolor{red}{\text{  A NFT's +18 collector. }}$$
 
                                                  
@@ -51,7 +54,7 @@
                          
                          
                          
-## $$\textcolor{red}{\text{ The Hottest 🔥 }}$$ 
+
 
 
 
